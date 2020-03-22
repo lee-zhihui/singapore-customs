@@ -10,6 +10,8 @@ Singapore Customs’ anti-contraband cigarettes campaign was first launched in 2
 
 We hope to raise awareness on the dangers of being involved in contraband cigarette activities. We hope to inculcate a greater sense of civic responsibility and work hand in hand with the public in tackling the issue of contraband cigarettes.
 
+![Criminal](images/SGCUSTOMS_CRIMINAL01.jpg)
+
 ## Possessing duty-unpaid cigarettes is a crime punishable by law
 
 Buying, selling, conveying, delivering, storing, keeping, having in possession or dealing with duty-unpaid goods are serious offences under the Customs Act and the Goods and Services Tax Act.
